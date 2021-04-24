@@ -4,8 +4,11 @@
 
 contact me : 
 0769082650 
+</br>
 LinkedIn: https://www.linkedin.com/in/mohamed-amine-ben-soltana/
+</br>
 instagram: https://www.instagram.com/med_amine_bensoltana2.0/
+</br>
 
 check out my digital art:
 https://www.artstation.com/m_bensoltana
