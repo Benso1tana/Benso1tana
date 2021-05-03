@@ -7,7 +7,10 @@ contact me :
 </br>
 LinkedIn: https://www.linkedin.com/in/mohamed-amine-ben-soltana/
 </br>
-instagram: https://www.instagram.com/med_amine_bensoltana2.0/
+Instagram: https://www.instagram.com/med_amine_bensoltana2.0/
+</br>
+</br>
+Website: www.bensoltana.site 
 </br>
 
 check out my digital art:
