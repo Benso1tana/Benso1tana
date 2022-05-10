@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Benso1tana
-- 👀 I’m interested in game developpement 
+- 👀 I’m interested in game and app developpement 
 - 🌱 I’m currently learning C++
 
 contact me : 
