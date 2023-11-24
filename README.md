@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Benso1tana
 - 👀 I’m interested in game and app developpement 
 - 🌱 I’m currently learning angular
-contact me : 
-0769082650 
+
 </br>
 LinkedIn: https://www.linkedin.com/in/mohamed-amine-ben-soltana/
 </br>
